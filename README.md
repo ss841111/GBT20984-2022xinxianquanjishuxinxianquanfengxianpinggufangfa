@@ -1,0 +1,1 @@
+# GBT20984-2022xinxianquanjishuxinxianquanfengxianpinggufangfa
